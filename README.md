@@ -1,0 +1,1 @@
+# Snowflake_SnowPro_Core_Certification
